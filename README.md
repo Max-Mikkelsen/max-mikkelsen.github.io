@@ -1,1 +1,0 @@
-# max-mikkelsen.github.io
